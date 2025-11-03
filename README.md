@@ -4,7 +4,7 @@ Team ID : NM2025TMID02476
 
 Team Size : 5
 
-Team Leader : DINO JOEL N R
+Team Leader : Dino Joel N R
 
 Team member : Ebansini E
 
